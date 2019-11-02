@@ -1,0 +1,2 @@
+# shopnsfw
+naughty
